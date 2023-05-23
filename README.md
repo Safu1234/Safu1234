@@ -6,7 +6,7 @@
 ![Visitor Count](https://profile-counter.glitch.me/RIBINZX/count.svg)
 <img src=https://github.com/Safu1234/apj1/assets/131651767/3ada75d8-9169-4079-85b3-438144ceed0e)>
 
-# Hi ,<a href="Hey"><img src="https://raw.githubusercontent.com/TOXIC-DEVIL/TOXIC-DEVIL/TOXIC-DEVIL-OFFICIAL/media/Hi.gif" width="48px"></a> I'm RIBIN&nbsp;
+# Hi ,<a href="Hey"><img src="https://raw.githubusercontent.com/TOXIC-DEVIL/TOXIC-DEVIL/TOXIC-DEVIL-OFFICIAL/media/Hi.gif" width="48px"></a> I'm safu;
 
 
 
