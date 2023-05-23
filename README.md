@@ -26,7 +26,7 @@
 
 - 🔭 I’m currently working on [RIBINZX] (https://github.com/Safu1234)
 
-- 💬 Ask me about *ME*
+- 💬 Ask me about *https://www.instagram.com/__________safu__/*
 
 - 📫 How to reach me *https://wa.me/919072890290*
 
