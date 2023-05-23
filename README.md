@@ -24,7 +24,7 @@
 <p><img align="center" src="https://github-readme-streak-stats.herokuapp.com/?user=RIBINZX&theme=dark" alt="RIBINZX" /></p>
 </p>
 
-- 🔭 I’m currently working on [RIBINZX] (https://github.com/RIBINZX)
+- 🔭 I’m currently working on [RIBINZX] (https://github.com/Safu1234)
 
 - 💬 Ask me about *ME*
 
